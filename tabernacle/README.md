@@ -1,4 +1,4 @@
-# Solomons Temple 
+# Tabernacle  
 
 
 What was happening in the world around the time this temple was built?  Who was involved?
