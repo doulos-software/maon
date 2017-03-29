@@ -1,3 +1,8 @@
-#Solomon's Temple
+# Solomons Temple 
 
-The temple designed by Yahweh, commissioned by David, and built by Solomon.
+
+What was happening in the world around the time this temple was built?  Who was involved?
+
+What year was is built? 
+
+What were it's major components? 
